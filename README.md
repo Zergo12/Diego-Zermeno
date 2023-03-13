@@ -1,4 +1,4 @@
-
+![logo](https://github.com/Zergo12/Diego-Zermeno/blob/main/Banner%20.png)
 <h1 align="center">Hi 👋, I'm Diego Zermeño</h1>
 <h3 align="center">A passionate Jr Fullstack Developer from Mexico</h3>
 
