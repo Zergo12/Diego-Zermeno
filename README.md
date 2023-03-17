@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **adzg96@gmail.com**
 
-- 📄 Know about my experiences [https://app.enhancv.com/resume/63fac31ee3814a0050e48d7a](https://app.enhancv.com/resume/63fac31ee3814a0050e48d7a)
+- 📄 Know about my experiences [https://app.enhancv.com/resume/63fac31ee3814a0050e48d7a](https://app.enhancv.com/share/38cbc970/?utm_medium=growth&utm_campaign=share-resume&utm_source=dynamic)
 
 - ⚡ Fun fact **I love interior desing**
 
